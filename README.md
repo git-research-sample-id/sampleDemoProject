@@ -12,9 +12,4 @@ fdsfdsfdsf
 dsfdsfds
 
 f　GGGG
-　
-
-fds
-fds
-fdsf
-
+gootaro edit
